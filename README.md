@@ -1,1 +1,0 @@
-# Abu-Dharr-M.-Manuel-Kenny-Martin-Navarro-BSIT-2B-
